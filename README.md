@@ -10,7 +10,7 @@
 
 ###
 
-<p align="center">📨 You Can Contact Me On Discord : paar3aa<br><br>📫 Email : paarsaofficial@gmail.com</p>
+<p align="center">📨 You Can Contact Me On Discord : paarsa.am<br><br>📫 Email : paarsaofficial@gmail.com & mail@paarsa.info</p>
 
 ###
 
